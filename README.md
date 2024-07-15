@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Web Development, UI / UX, Multimedia**
 
-- 📫 How to reach me **dimasalifardiansyahh@gmail.com**
+- 📫 How to reach me **azkaauliarahma08@gmail.com**
 
 - 📄 Know about my experiences **Juara Harapan 1 (LKS - Website Technology), Juara 1 (FLS2N - Short Movie), Mentoring IT Club**
 
